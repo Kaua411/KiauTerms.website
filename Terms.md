@@ -1,4 +1,4 @@
-# Termos de Uso – Kiau Bot
+Termos de Uso – Kiau Bot
 
 1. Aceitação dos Termos
 
